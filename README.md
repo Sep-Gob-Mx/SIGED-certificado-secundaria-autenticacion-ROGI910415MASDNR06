@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-ROGI910415MASDNR06
+ROGI910415MASDNR06
